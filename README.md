@@ -1,0 +1,1 @@
+This project encrouge you to post your location and allow you to see other location just it act as social media
